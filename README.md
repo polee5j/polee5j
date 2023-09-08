@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @polee5j
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on Fate
+- 📫 How to reach me ML
+
